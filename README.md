@@ -1,4 +1,4 @@
-<a href="#"><img width="100%" height="auto" src="https://thumbs.gfycat.com/RedLegitimateHellbender-size_restricted.gif" height="175px"/></a>
+<a href="#"><img width="100%" height="auto" src="https://tenor.com/view/naruto-smile-anime-gif-9821883" height="175px"/></a>
 <h1 align="center">Hi <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">, I'm Vivek</h1>
 
 
